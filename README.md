@@ -1,0 +1,2 @@
+# dedeleman
+Ga ada
